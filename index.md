@@ -1,37 +1,29 @@
-## Welcome to GitHub Pages
+| <https://hoteldesires.blogspot.com/> |
+|  |
+| <https://twitter.com/HotelDesires> |
+|  |
+| <https://www.tumblr.com/blog/hoteldesires> |
+| <https://www.diigo.com/profile/hoteldesires> |
+| <https://www.diigo.com/user/hoteldesires> |
+| <https://www.evernote.com/shard/s421/sh/b0dca2b2-5925-3d62-ad84-dcf81aa35a4b/dc4926fde71549551a2be9add526e296> |
+| <https://getpocket.com/@f5aA7gk3dG54dT61e5p6d96pf6T0dT788dSui6Pc86A2a1D32b0V4G7ep12ub7e0?src=navbar> |
+| [https://drive.google.com/drive/folders/11ptJAcZWfFKzdApnar7mkyghJ4UOJklU](https://drive.google.com/drive/folders/11ptJAcZWfFKzdApnar7mkyghJ4UOJklU?usp=sharing) |
+| Created |
+|  |
+|  |
+| <https://www.instapaper.com/p/9332192> |
+|  |
+| <https://trello.com/b/zanSvxiI/profiles> |
+|  |
+|  |
+| <https://www.pearltrees.com/hoteldesires> |
+| <https://www.behance.net/hoteldesires> |
+| <https://about.me/hoteldesires> |
+| [hoteldesireslondon.wordpress.com](http://hoteldesireslondon.wordpress.com) |
 
-You can use the [editor on GitHub](https://github.com/hoteldesires/hoteldesires/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/hoteldesires/hoteldesires/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+| <https://ello.co/hoteldesires> |
+| <https://nimb.ws/XBvxNA> |
+| <https://dribbble.com/hoteldesires/about> |
+| <https://www.loom.com/share/7607d01a08614302950740892c714ffd> |
+| [HOTELDESIRES.POSTACH.IO](http://hoteldesires.postach.io/) |
+| <https://hoteldesires.mystrikingly.com/> |
